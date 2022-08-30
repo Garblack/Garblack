@@ -1,0 +1,5 @@
+- 🩸 Hi, I’m @Garblack
+- 🦷 I’m interested in your secrets.
+- 🧠 I’m currently learning how to manifest my being.
+- 🫁 I’m looking to collaborate on unlimited power.
+- 🫀 How to reach me, extend your hand.
